@@ -1,0 +1,2 @@
+# Kajatec-page
+KAJATEC THINGS
